@@ -1,3 +1,2 @@
-phobos paste
-niggas will go mad :yawning_face:
-no updates will be provided, fix tha sauce urself
+snitch nigga thats that shit i dont like :yawning_face:
+uncracked and a shit ton of errors, no updates/fixes will be provided anymore
